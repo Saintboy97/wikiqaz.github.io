@@ -1,0 +1,1 @@
+# wikiqaz.github.io
